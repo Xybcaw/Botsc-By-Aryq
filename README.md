@@ -1,0 +1,2 @@
+# Botsc-By-Aryq
+BOT JANGAN DI SALAH GUNAKAN
